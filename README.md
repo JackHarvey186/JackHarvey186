@@ -4,6 +4,6 @@
 
 ### 🦉 Owl Extraordinaire 🦉
 
-### 👨‍💻 **Languages (from most to least proficient):** Python, HTML, CSS, SQL and C# 👨‍💻
+### 👨‍💻 **Languages (from most to least proficient):** Python, C#, HTML, CSS and SQL 👨‍💻
 
 ### 🎨 Amateur Logo Designer 🎨
