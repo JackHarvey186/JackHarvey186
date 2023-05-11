@@ -2,7 +2,7 @@
 
 ### 🏛️ First Year Uni Student 🏛️
 
-### 🦉 Owl Overlord and Extraordinaire 🦉
+### 🦉 Owl Extraordinaire 🦉
 
 ### 👨‍💻 **Languages (from most to least proficient):** Python, C#, HTML, CSS and SQL 👨‍💻
 
