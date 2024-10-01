@@ -1,6 +1,6 @@
 ### 🧙‍♂️ Not a Great Horned pretending to be a human (hoo?) 🧙‍
 
-### 🏛️ Second Year Uni Student 🏛️
+### 🏛️ Third Year Uni Student (Placement @ UoH) 🏛️
 
 ### 🦉 Owl Extraordinaire 🦉
 
