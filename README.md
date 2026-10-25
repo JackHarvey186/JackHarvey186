@@ -1,6 +1,6 @@
 ### 🧙‍♂️ Not a Great Horned pretending to be a human (hoo?) 🧙‍
 
-### 🏛️ Final Year Uni Student 🏛️
+### 🏛️ Computer Science Graduate (2:1) 🏛️
 
 ### 🦉 Owl Extraordinaire 🦉
 
